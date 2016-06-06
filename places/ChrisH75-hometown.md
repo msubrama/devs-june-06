@@ -4,4 +4,6 @@
 
 ## Fun things to do
 
+Drive to Atlanta for concerts
+
 ## Local Nightlife
